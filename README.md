@@ -1,2 +1,0 @@
-# onaylama
-gfdgdfgdg
